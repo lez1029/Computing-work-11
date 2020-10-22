@@ -46,7 +46,7 @@ To Weiyi’s dismay, Jaysee’s protective fat caused all of the eggs to bounce 
 
 But Scott has his tactics too… <br>
 
-Scott used his ultimate skill and let out a muffled autistic screech. By causing a magnitude 50 earthquake by using sound alone, Weiyi was deafened for a good 20 minutes. <br>
+Scott used his ultimate skill and let out a muffled irritating screech. By causing a magnitude 50 earthquake by using sound alone, Weiyi was deafened for a good 20 minutes. <br>
 
 Using the opportunity to escape, the two boys rushed back to their home, finally glad that they were free from Weiyi’s laboratory. <br>
 
